@@ -15,4 +15,6 @@
 
 [重庆丰兴智能设备有限公司](http://www.023001.com/qiye/9220963.html)
 
+https://github.com/zhifeiLiuHi/cqfxzn.github.io/blob/master/WeChat%20Image_20190203212321.png
+
 
